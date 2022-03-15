@@ -2,7 +2,7 @@
 - 👀 I’m interested in Hacking
 - 🌱 I’m currently learning Free Cybersecurity courses cause im broke :/
 - 💞️ I’m looking to collaborate on idk
-- 📫 How to reach me :)
+- 📫 Reach me at my discord - MoonKnight#4975
 -
 
 <!---

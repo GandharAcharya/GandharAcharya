@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @GandharAcharya
 - 👀 I’m interested in Hacking
-- 🌱 I’m currently learning Free Cybersecurity courses cause im broke :/
-- 💞️ I’m looking to collaborate on idk
+- 🌱 Learning Cybersecurity from Professional Udemy Cources
+- 💞️ 14 y'o
 - 📫 Reach me at my discord - MoonKnight#4975
 -
 
